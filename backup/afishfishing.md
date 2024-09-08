@@ -1,1 +1,1 @@
-Hello， My is Zeyn yi.
+Hello， My name is Zeyn yi.
